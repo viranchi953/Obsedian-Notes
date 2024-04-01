@@ -6,7 +6,7 @@
 2. submission - [Assignment Submission (google.com)](https://classroom.google.com/c/NjQ2ODgwNTU5Mjg2/a/NjY3MjcwNTk4MzUy/details)
 
 ![[assisgnment.png]]
-
+![[https://raw.githubusercontent.com/viranchi953/Obsedian-Notes/master/assisgnment.png]]
 
 
 
